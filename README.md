@@ -1,2 +1,2 @@
-#  diseñador gráfico
+#  empresa digital
 
